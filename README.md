@@ -1,4 +1,4 @@
-## Hi there 👋
+## Olá vocês! em breve to atualizando meu profile. valeu! 👋
 
 <!--
 **claudi0jr/claudi0jr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
